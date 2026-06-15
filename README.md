@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 💬 Pergunte-me sobre decoração
 - 📫  Como me contatar:livia.vettor@escola.pr.gov.br
 - 😄 Pronomes: ela/dela
-- ⚡ Curiosidade: adoro gatos, sou muito simpatica e educada
+- ⚡ Curiosidade: adoro gatos, sou simpatica e responsavel
 -->
 ![](https://media1.tenor.com/m/524zMVbZ5MYAAAAC/no-nope.gif)
